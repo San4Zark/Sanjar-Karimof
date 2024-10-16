@@ -1,1 +1,1 @@
-# Sanjar-Karimof
+Санжар Каримов CSC-23
